@@ -10,4 +10,4 @@ Ginshin impact nb.
 
 草可以，有点意思。
 
-I am wanna **sleep**!
+I am wanna **sleep** and **play games**!
