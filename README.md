@@ -12,6 +12,6 @@ Ginshin impact nb.
 
 I am wanna **sleep** and **play games**! 
 
-*Sunday*  -sunday-
+*sunday*
 
 ***Sunday***
