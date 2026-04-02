@@ -24,4 +24,7 @@ I am wanna **sleep** and **play games**!
 
 ## My shoping list
 -Anime goods
+
 -milk
+
+-milk tea
